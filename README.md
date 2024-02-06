@@ -1019,13 +1019,6 @@ I would like to let you know that I also do private orders for onchain investiga
 Thank you very much. I am very happy and excited to help each and every one of you! Thank you so much for your support!
 
 
-#
 
-- [Check out my Telegram Channel](https://t.me/officer_cia)
-- [Follow my Twitter](https://twitter.com/officer_cia)
-- [Track all my activities](https://t.me/officer_cia/296)
-- [All my Socials](https://t.me/officer_cia/296)
-
-##
 
 (👍 ͡❛ ͜ʖ ͡❛)👍 Thank you! 
